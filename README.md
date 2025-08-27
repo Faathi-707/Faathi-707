@@ -1,12 +1,7 @@
 ## Hii I am Faathi (she/her) :D ✨✨
 
 🧙‍♀️ Computer Science Student Y2 <br/>
-🦾 Currently learning <br/>
-    - CS50W Certificate (Web Programming with Python & JavaScript) <br/>
-    - Google UX Design Certificate <br/>
-🔭 Looking to collaborate on <br/>
-    - Beginner-friendly web/app projects<br/>
-    - UX/UI + full-stack development experiments<br/>
+🦾 Interested in character and game design
 ✨✨Fun fact: I’m into both creative design and serious system architecture—I like jumping between back and forth.<br/>
 
 
