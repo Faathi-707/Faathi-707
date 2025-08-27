@@ -1,4 +1,4 @@
-## Hii I am Faathi (she/her) :D ✨✨
+## Hi, I'm Faathi :D ✨
 
 🧙‍♀️ Computer Science Student Y2 <br/>
 🦾 Interested in character and game design
