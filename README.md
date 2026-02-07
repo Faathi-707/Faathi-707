@@ -1,6 +1,6 @@
 ## Hi, I'm Faathi :D ✨
 
-🧙‍♀️ Computer Science Student Y2 <br/>
+🧙‍♀️ Computer Science Student Y3 <br/>
 🦾 Interested in character and game design<br/>
 ✨✨Fun fact: I’m into both creative design and serious system architecture.<br/>
 
